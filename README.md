@@ -32,11 +32,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
+
+1. A Health to all Good-Fellowes:
+OR,
+The good Companions Arithmaticke.
 BE merry my hearts, and call for your quarts,and let no liquor be lacking,We have gold in store, we 
-1. The second part, To the same tune.
+    _ The second part, To the same tune.
 
 #####Back#####
-A health to all good-fellowes: or, The good companions arithmaticke To the tune of, To drive the col
+London Printed for Henry Gossen.FINIS.
 **Types of content**
 
   * There are 96 **verse** lines!
